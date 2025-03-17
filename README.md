@@ -50,7 +50,7 @@
 - 🧋 Can't focus without tea  
 - 📚 Always learning something new  
 - 📊 I love turning raw data into visual stories  
-- 👩‍🏫 I enjoy helping beginners and sharing resources
+- 👩‍🏫 I enjoy helping and sharing resources
 
 ---
 
